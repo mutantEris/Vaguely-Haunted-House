@@ -5,7 +5,7 @@
 
 I wonder if it's exactly what it sounds like too
 
-https://github.com/mutantEris/Vaguely-Haunted-House/assets/62120715/ac61ad03-2c80-43ab-8306-9e8ce0deb383
+https://github.com/mutantEris/Vaguely-Haunted-House/assets/62120715/dd5f5299-9fe5-45d7-a8c0-49f7122e2a25
 
 Yeah... Yeah it definitely sounds haunted too.
 
